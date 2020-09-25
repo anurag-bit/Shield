@@ -1,2 +1,2 @@
 # Shield
-<h1>Lets Together Make a Censorship FREE SPCIETY</H1>
+<h1>Lets Together Make a Censorship FREE SOCIETY</H1>
